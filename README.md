@@ -1,2 +1,2 @@
-# SkullCandy-Jib-True-2-
+# SkullCandy-Jib-True-2
 Totally Wireless essentials 
